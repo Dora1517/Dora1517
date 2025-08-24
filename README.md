@@ -2,7 +2,7 @@
 - 👀 I’m interested in Minecraft Modification
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me juliusbrgmnn@gmail.com
+- 📫 How to reach me j1xyfrUwUTux1@proton.me
 - 😄 Pronouns: nonbinary
 - ⚡ Fun fact: Minecraft is from Nintendo
 
