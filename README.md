@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me j1xyfrUwUTux1@proton.me
-- 😄 Pronouns: nonbinary
+- 😄 Pronouns: He/she/it
 - ⚡ Fun fact: Minecraft is from Nintendo
 
 <!---
